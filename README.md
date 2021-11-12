@@ -1,1 +1,0 @@
-# Laboratornai-7-Plotnikov-P.S.-BSU1801
